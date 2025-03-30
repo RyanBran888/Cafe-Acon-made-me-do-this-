@@ -10,3 +10,7 @@ above are all the itterations of the project, i dont know which ones the newest 
 
 ![image](https://github.com/user-attachments/assets/6f48cae3-f2c2-4e81-8f66-200e55f44e2f)
 
+![image](https://github.com/user-attachments/assets/64e02992-8b7f-44ff-a75f-76f30cdce4b3)
+
+also look at my other projcts they actually dont suckj
+
