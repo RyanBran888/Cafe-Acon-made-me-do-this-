@@ -7,3 +7,6 @@ you put the paper airplane between the two arm thingies and then you turn on the
 
 
 above are all the itterations of the project, i dont know which ones the newest but i tried :3 please send me special prixes for being really  cool acon, also hi acon i know your reading this can iget some extra cups please i really really really want the uhseuhesuhauh
+
+![image](https://github.com/user-attachments/assets/6f48cae3-f2c2-4e81-8f66-200e55f44e2f)
+
